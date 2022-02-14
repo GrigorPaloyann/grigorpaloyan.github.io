@@ -1,1 +1,0 @@
-# grigorpaloyan.github.io
